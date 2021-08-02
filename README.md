@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SsWwRr
+- 👀 I’m 16...
+- 📫 How to reach me swr100@wp.pl or #5832 on discord
