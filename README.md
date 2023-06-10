@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @swr
-- 👀 I’m 17...
-- 📫 How to reach me swr100@wp.pl or #5832  on discord
+- 👀 I’m 18...
+- 📫 How to reach me swr100@wp.pl
+- Manifesting the best grade in CS 🙏🙏🙏
