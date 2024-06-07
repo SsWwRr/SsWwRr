@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @swr
-- 👀 I’m 18...
-- 📫 How to reach me swr100@wp.pl
-- Manifesting the best grade in CS 🙏🙏🙏
+I'm 19 and I'm a passionate programmer. Contact me @ filip_paciorek@wp.pl
